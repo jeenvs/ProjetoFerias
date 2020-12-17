@@ -1,3 +1,3 @@
 # ProjetoFerias
 
-Projetando nas férias
+Imagine uma nova história para sua vida e acredite nela.
